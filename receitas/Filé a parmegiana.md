@@ -1,10 +1,10 @@
-## #Filé a parmegiana :chicken:
+## # Filé a parmegiana :chicken:
+
+
 
 ## MODO DE PREPARO
 
-
-
-### PARA A MILANESA:
+###PARA A MILANESA:
 
 - Corte o filé em bifes não muito finos (por favor não bata) e tempere-os a gosto.
 
@@ -25,6 +25,8 @@
 1. Faça um molho com extrato de tomate e uma pitadinha de açúcar e coloque sobre os filés. O melhor sempre será o seu próprio molho de tomates. Cubra-os com as fatias de mussarela e coloque no forno por aproximadamente 10 minutos.
 2. Pessoalmente prefiro queijo prato e recomendo polvilhar bastante queijo parmesão ralado, antes de gratinar.
 3. Para acompanhar batatas fritas bem douradas e arroz branco. Fica uma delícia.
+
+
 
 
 
